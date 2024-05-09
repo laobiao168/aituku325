@@ -19,7 +19,7 @@ https://ai.tuku325.cc/
 提　示：演示站体验账号联系作者
 
 ## AI.tuku325.cc真人开奖直播视频合成系统界面截图
-[![Watch the video](./232024012.mp4)](./232024012.mp4)
+[![Watch the video](./pic6.png)](./232024012.mp4)
 
 
 ## 网站支持
